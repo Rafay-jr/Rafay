@@ -1,1 +1,1 @@
-Kya akro Hayee Kuch Kuch Hota Hai
+Kya karo Hayee Kuch Kuch Hota Hai
